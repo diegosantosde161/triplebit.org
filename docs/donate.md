@@ -7,3 +7,4 @@ If you are interested in donating IPv4 space or equipment, or in donating time b
 ---
 
 Our financial donation platforms are pending our IRS 501(c)(3) application determination, but if you would like to arrange a contribution in the meantime please feel free to get in touch via Signal or email.
+diegosantosdejesus049@gmail.com
